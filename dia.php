@@ -1,0 +1,1 @@
+Untuk dia yang kurindukan. 
